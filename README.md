@@ -1,6 +1,6 @@
-# Ruslan Pavlenko — CV / Resume
+# Ruslan Pavlenko — CV COO / Resume COO
 
-📍 44263, Dortmund, Germany &nbsp;|&nbsp; 📧 [pavlenko.rv@gmail.com](mailto:pavlenko.rv@gmail.com) &nbsp;|&nbsp; 💼 [linkedin.com/in/pavlenko-rv](https://linkedin.com/in/pavlenko-rv)
+📍 44263, Dortmund, Germany &nbsp;|&nbsp; 📞 +49 151 47 545 227 / +38 067 483 2243 &nbsp;|&nbsp; 📧 [pavlenko.rv@gmail.com](mailto:pavlenko.rv@gmail.com) &nbsp;|&nbsp; 💼 [linkedin.com/in/pavlenko-rv](https://linkedin.com/in/pavlenko-rv)
 
 ---
 
